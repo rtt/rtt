@@ -4,4 +4,4 @@
 
 ### About rich
 
-![bees butts foxes pigeons february](https://i.imgur.com/gbPpZVS.png)
+![bees butts foxes pigeons february](https://i.imgur.com/255oOYb.png)
