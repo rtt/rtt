@@ -1,4 +1,4 @@
-## Hello i am rich
+## Hello i am richard by birth name
 
 > pictures of shoes
 
